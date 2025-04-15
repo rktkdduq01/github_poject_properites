@@ -1,0 +1,1 @@
+# github_poject_properites
